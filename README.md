@@ -26,7 +26,7 @@ Para gestionar campañas de forma eficaz, elige un proveedor con:
 - **Cobertura global**: ideal para verificar anuncios en distintos países.
 - **Privacidad garantizada**: protege tu estrategia y datos.
 
-## _[9Proxy](https://9proxy.com/?utm_source=Web2.0&utm_medium=Graphy&utm_id=sophie89)_: Tu aliado publicitario: Tu aliado publicitario
+## _[9Proxy](https://9proxy.com/?utm_source=Web2.0&utm_medium=Graphy&utm_id=sophie89)_: Tu aliado publicitario
 
 Con IPs residenciales en todo el mundo, velocidad óptima y alto nivel de seguridad, **[9Proxy](https://9proxy.com/?utm_source=Web2.0&utm_medium=Graphy&utm_id=sophie89): Tu aliado publicitario** se posiciona como una excelente opción para quienes gestionan campañas a gran escala.
 
